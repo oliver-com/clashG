@@ -1,2 +1,2 @@
 # clashG
-> https://tt.vg/zXQDN
+> https://tt.vg/DEQvv
